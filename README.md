@@ -1,0 +1,1 @@
+This project is dedicated to capturing the stunning diversity and beauty of the natural world in high-resolution images. Photographers and nature enthusiasts from around the globe are invited to contribute their best shots, showcasing everything from serene landscapes and majestic wildlife to intricate macro shots of flora and fauna.
